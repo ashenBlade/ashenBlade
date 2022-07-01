@@ -6,4 +6,6 @@ Want to see my projects? [Here they are](https://github.com/ashenBlade?tab=repos
 
 I have no idea what else could bring you here. Seriously.
 
-Anyway, if you are still here - enjoy. And have a nice day!
+Anyway, if you are still here - enjoy.
+
+And don't eat the yellow snow!
